@@ -4,5 +4,7 @@ follow me = free cat! :3✨
 
 i really luv final fantasy >_<!
 
-![images (1)](https://github.com/user-attachments/assets/78d50e99-3888-4312-8d54-21b6388323bf)
-![images](https://github.com/user-attachments/assets/84a6473d-9f6a-48e1-a51b-c0794815784c)
+
+I II III IV V VI VII VII CC VII DC VIII IX X X-2 XI XII T TA TA2 XIII XIII-2 XIIILR T-0 XIV BE M W XVPD XV
+
+VII AND XIII I LUV U !!!
