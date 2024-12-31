@@ -1,10 +1,12 @@
-     hi ! me vin :D
+       - hi ! me vin 🎉😺
+-my best friend :3
+
+-chi,lemoni,kero,alesia✨✨
 
 
-
-!!!c+h | int!!!                     
-pls don't copy my oc/cos/style😓
-
+-c+h int ata!
+-pls don't copy my oc/cos/style🥶
+if u coping/copied i very sad😭
 
 
 
@@ -16,24 +18,24 @@ pls don't copy my oc/cos/style😓
 
 
                               
-                                   i really luv final fantasy AHHHHHHHHHHH >_<!
-IT IS MY FAV GAMEEE I HAVE TO PLAY IT ON PLAYSTATION 5
+                                   --i really luv final fantasy AHHHHHHHHHHH >_<💢!
+-IT IS MY FAV GAMEEE I HAVE TO PLAY IT ON PLAYSTATION 5
 
-final fantasy vii💝
-final fantasy xiii💝
+
+     -final fantasy vii -
+     -final fantasy xiii -
 
 
 
 ![images (1)](https://github.com/user-attachments/assets/66032dd9-14ad-4b2d-9fea-441d5f9331fc)
 
-your art so cool!😘
 
 
 
                                       
 ![images (2)](https://github.com/user-attachments/assets/c4f7342c-b446-45df-8d0a-552ef6686e74)
 
-cool art!!!!!cloud💐
+
 
 
 
