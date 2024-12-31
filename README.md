@@ -1,14 +1,36 @@
        - hi ! me vin 🎉😺
+
+           im boy -3- 
+       
+you can call me !
+
+
+-vin,vinnie,vintage,neko,aito 😸
+(most ppl call me vin -_- )
+
+
+
+my birthday 22/1/2010 ^^
+
+                   im from Thailand!
+                   Phitsanulok 🌞
+
+
+
+
 -my best friend :3
 
--chi,lemoni,kero,alesia✨✨
+
+       -chi,lemoni,kero        ✨✨
 
 
--c+h int ata!
+-c+h int ata!!!
 -pls don't copy my oc/cos/style🥶
 if u coping/copied i very sad😭
 
 
+
+(⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)💢
 
 
 
@@ -22,8 +44,8 @@ if u coping/copied i very sad😭
 -IT IS MY FAV GAMEEE I HAVE TO PLAY IT ON PLAYSTATION 5
 
 
-     -final fantasy vii -
-     -final fantasy xiii -
+                -final fantasy vii -
+               -final fantasy xiii -
 
 
 
