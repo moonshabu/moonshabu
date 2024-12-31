@@ -1,4 +1,4 @@
-- hi ! me vin 🎉😺
+hi ! me vin 🎉😺
 
 im boy -3- 
        
@@ -10,6 +10,11 @@ you can call me !
 
 
 my birthday 22/1/2010 ^^
+
+
+
+
+
 
 im from Thailand!
 Phitsanulok 🌞
@@ -38,11 +43,13 @@ if u coping/copied i very sad😭
 
                               
                                    --i really luv final fantasy AHHHHHHHHHHH >_<💢!
--IT IS MY FAV GAMEEE I HAVE TO PLAY IT ON PLAYSTATION 5
+-IT IS MY FAV GAMEEE I HAVE TO PLAY IT ON PLAYSTATION 5  I still have many games that I really like to play //
+
+FINAL FANTASY,TEKKEN,PERSONA, GENSHIN IMPACT,YANDERE,DDLC, FORTNIGHT          
 
 
-                -final fantasy vii -
-               -final fantasy xiii -
+-final fantasy vii -☕
+-final fantasy xiii -🍵
 
 
 
