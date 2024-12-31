@@ -1,10 +1,9 @@
-       - hi ! me vin 🎉😺
+- hi ! me vin 🎉😺
 
-           im boy -3- 
+im boy -3- 
        
+
 you can call me !
-
-
 -vin,vinnie,vintage,neko,aito 😸
 (most ppl call me vin -_- )
 
@@ -12,16 +11,14 @@ you can call me !
 
 my birthday 22/1/2010 ^^
 
-                   im from Thailand!
-                   Phitsanulok 🌞
+im from Thailand!
+Phitsanulok 🌞
 
 
 
 
 -my best friend :3
-
-
-       -chi,lemoni,kero        ✨✨
+-chi,lemoni,kero ✨✨
 
 
 -c+h int ata!!!
