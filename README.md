@@ -20,14 +20,13 @@ pls don't copy my oc/cos/style😓
 
 
 
-![images](https://github.com/user-attachments/assets/adb58d0d-4697-4108-bfb4-935fd7365c62)
-
 ![images (1)](https://github.com/user-attachments/assets/66032dd9-14ad-4b2d-9fea-441d5f9331fc)
 
 your art so cool!😘
 
 
 
+                                      
 ![images (2)](https://github.com/user-attachments/assets/c4f7342c-b446-45df-8d0a-552ef6686e74)
 
 
