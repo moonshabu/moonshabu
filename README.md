@@ -1,4 +1,4 @@
-     cake total 1$! :3/⁠ᐠ⁠｡_⁠｡⁠ᐟ⁠\
+     hi ! me vin :D
 
 
 
@@ -16,7 +16,11 @@ pls don't copy my oc/cos/style😓
 
 
                               
-                                   i really luv final fantasy AHHHHHHHHHHH >_<!💢
+                                   i really luv final fantasy AHHHHHHHHHHH >_<!
+IT IS MY FAV GAMEEE I HAVE TO PLAY IT ON PLAYSTATION 5
+
+final fantasy vii💝
+final fantasy xiii💝
 
 
 
@@ -29,8 +33,19 @@ your art so cool!😘
                                       
 ![images (2)](https://github.com/user-attachments/assets/c4f7342c-b446-45df-8d0a-552ef6686e74)
 
+cool art!!!!!cloud💐
+
+
 
 ![Final_Fantasy_Logo_XIII](https://github.com/user-attachments/assets/f8ca9e4a-6d9b-464d-b8bb-a2c0fda209c1)
+
+
+
+
+
+
+
+
 
 
 ![images (3)](https://github.com/user-attachments/assets/7186ffa8-9fcd-48fe-8340-13f56b03b2c0)
