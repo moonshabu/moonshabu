@@ -1,20 +1,10 @@
-hi ! me vin 🎉😺
-
-im boy -3- 
-       
-
 you can call me !
 -vin,vinnie,vintage,neko,aito 😸
 (most ppl call me vin -_- )
 
 
 
-my birthday 22/1/2010 ^^
 
-
-
-im from Thailand!
-Phitsanulok 🌞
 
 
 
@@ -24,12 +14,12 @@ Phitsanulok 🌞
 
 
 -c+h int ata!!!
--pls don't copy my oc/cos/style🥶
-if u coping/copied i very sad😭
+-pls don't copy my oc/cos/style🙀
+if u coping/copied i very sad😿
 
 
 
-(⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)💢
+(⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)💢💫
 
 
 
@@ -37,11 +27,11 @@ if u coping/copied i very sad😭
 
 
 
-i really luv final fantasy AHHHHHHHHHHH >_<💢!
+i really luv final fantasy AHHHHHHHHHHH 💥😻
 
 -IT IS MY FAV GAMEEE I HAVE TO PLAY IT ON PLAYSTATION 5  I still have many games that I really like to play //
 
-FINAL FANTASY,TEKKEN,PERSONA, GENSHIN IMPACT,YANDERE,DDLC, FORTNIGHT          
+FINAL FANTASY,TEKKEN,PERSONA, GENSHIN IMPACT,YANDERE,DDLC, FORTNIGHT,MISIDE        
 
 
 -final fantasy vii -☕
