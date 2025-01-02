@@ -1,25 +1,8 @@
-you can call me !
--vin,vinnie,vintage,neko,aito 😸
-(most ppl call me vin -_- )
-
-
-
-
-
-
-
-
--my best friend :3
--chi,lemoni,kero ✨✨
-
-
 -c+h int ata!!!
--pls don't copy my oc/cos/style🙀
-if u coping/copied i very sad😿
+-pls don't copy my oc/cos/style
+if u coping/copied i very sad
 
 
-
-(⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)💢💫
 
 
 
@@ -27,17 +10,9 @@ if u coping/copied i very sad😿
 
 
 
-i really luv final fantasy AHHHHHHHHHHH 💥😻
-
--IT IS MY FAV GAMEEE I HAVE TO PLAY IT ON PLAYSTATION 5  I still have many games that I really like to play //
-
-FINAL FANTASY,TEKKEN,PERSONA, GENSHIN IMPACT,YANDERE,DDLC, FORTNIGHT,MISIDE        
 
 
--final fantasy vii -☕
-
--final fantasy xiii -🍵
-
+i like to play final fantasy
 
 
 ![images (1)](https://github.com/user-attachments/assets/66032dd9-14ad-4b2d-9fea-441d5f9331fc)
